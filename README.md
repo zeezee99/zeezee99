@@ -1,10 +1,11 @@
 <p></p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31yyekbgnxtewfruhkzzakrfc42i&redirect=true">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yyekbgnxtewfruhkzzakrfc42i&cover_image=true&theme=spotify-embed&show_offline=false&background_color=171236&interchange=false&profanity=false&hide_remaster=false&bar_color=ff9cc2&bar_color_cover=true&mode=light">
+  </a>
 </p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
-<img width="1378" height="2039" alt="1000056230" src="https://github.com/user-attachments/assets/d47bfa99-63db-40bd-b9fb-2daa4d8301ea" />
 <p></p>
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
 <i>- artist, almost always afk or offtab! I love interacting, do whisper me~ | en/中文/bery lil tagalog
