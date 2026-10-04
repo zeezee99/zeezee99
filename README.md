@@ -2,7 +2,7 @@
 
 
 
-<p align="center">“ᵢ ₗₐy ₘy ₛwₒᵣd ᵢ ₐbdᵢcₐₜₑ”
+<p align="center">“i lay my sword i abdicate...”
 </p>
   <img width="1998" height="1378" alt="1000062445" src="https://github.com/user-attachments/assets/8ae4dd86-4e6b-45db-94c2-4d062f9b3d3f" />
   art by me!
