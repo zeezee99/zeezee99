@@ -2,7 +2,7 @@
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yyekbgnxtewfruhkzzakrfc42i&cover_image=true&theme=spotify-embed&show_offline=false&background_color=171236&interchange=false&profanity=false&hide_remaster=false&bar_color=ff9cc2&bar_color_cover=true&mode=light">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yyekbgnxtewfruhkzzakrfc42i&cover_image=true&theme=spotify-embed&show_offline=false&background_color=171236&interchange=false&profanity=false&hide_remaster=false&bar_color=ff9cc2&bar_color_cover=true&mode=dark">
   </a>
 </p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
