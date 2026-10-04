@@ -1,11 +1,4 @@
 <p></p>
-
-
-
-<p align="right">“i give in, i abdicate...”
-</p>
-  <img width="1998" height="1378" alt="1000062445" src="https://github.com/user-attachments/assets/8ae4dd86-4e6b-45db-94c2-4d062f9b3d3f" />
-  <p align="left">“i lay my sword down anyway”</p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31yyekbgnxtewfruhkzzakrfc42i&redirect=true">
@@ -16,4 +9,7 @@
 <img width="1378" height="2039" alt="1000056230" src="https://github.com/user-attachments/assets/d47bfa99-63db-40bd-b9fb-2daa4d8301ea" />
 <p></p>
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
+<i>- artist, almost always afk or offtab! I love intereacting, do whisper me~
+- adult first and foremost, 20+, -16 dni (　´⊇｀)</i>
 <img width="1152" height="256" alt="1000064396" src="https://github.com/user-attachments/assets/02b1c5c2-b9b6-45ad-bc7c-d0ed0b6c452f" />
+moon shingun my bbg <3
