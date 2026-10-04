@@ -13,5 +13,4 @@
   </a>
 </p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
-<img width="1181" height="1748" alt="1000060999" src="https://github.com/user-attachments/assets/0f682fab-63e4-47c8-9e26-2a3c3cf2476a" />
-<img width="1181" height="1748" alt="1000061000" src="https://github.com/user-attachments/assets/a3338daa-31fd-4e36-8ec9-93b6ae73e617" />
+<img width="1378" height="2039" alt="1000056230" src="https://github.com/user-attachments/assets/d47bfa99-63db-40bd-b9fb-2daa4d8301ea" />
