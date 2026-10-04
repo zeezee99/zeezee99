@@ -10,6 +10,6 @@
 <p></p>
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
 <i>- artist, almost always afk or offtab! I love intereacting, do whisper me~
-- adult first and foremost, 20+, -16 dni (　´⊇｀)</i>
+<p></p>- adult first and foremost, 20+, -16 dni (　´⊇｀)</p></i>
 <img width="1152" height="256" alt="1000064396" src="https://github.com/user-attachments/assets/02b1c5c2-b9b6-45ad-bc7c-d0ed0b6c452f" />
 moon shingun my bbg <3
