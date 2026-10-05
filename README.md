@@ -10,6 +10,9 @@
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
 <i>- artist, almost always afk or offtab! I love interacting, do whisper me~ | en/中文/bery lil tagalog
 <p></p>- adult first and foremost, 20+, -16 dni (　´⊇｀)</p>
-<p>- svsss, mdzs, tgcf, musicals, hsr, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</p></i>
+<p>- svsss, mdzs, 2ha, tgcf, musicals, hsr, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</p></i>
 <p align="center"><img width="168" height="232" alt="1000064397" src="https://github.com/user-attachments/assets/382b546b-97fd-4a27-b081-b7a89838c63e" /></p>
+<p></p>
 moon shingun my bbg <3
+<p></p>
+<p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
