@@ -1,4 +1,6 @@
 <p></p>
+<img width="1250" height="1265" alt="1000063621" src="https://github.com/user-attachments/assets/11adff36-5100-4827-a146-c36fb8d8bfc0" />
+
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
