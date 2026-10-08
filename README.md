@@ -12,8 +12,8 @@
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
 <i>@90% offtab/afk, do w2i, I love interacting~ | en/中文/bery lil tagalog
 <p></p>ㅤㅤadult, 20+ | -16 dni (　´⊇｀)</p>
-<p align="right">>svsss, mdzs, 2ha, tgcf, musicals, hsr, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</p></i>
+<p align="right"> svsss, mdzs, 2ha, tgcf, musicals, hsr, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</p></i>
 <p></p>
-<p size="small" align="center"><img width="498" height="288" alt="1000064792" src="https://github.com/user-attachments/assets/7abd8341-11f3-46a1-b1a0-ffa5d8b45abd" />
+<p align="center"><img width="498" height="288" alt="1000064792" src="https://github.com/user-attachments/assets/7abd8341-11f3-46a1-b1a0-ffa5d8b45abd" />
 
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
