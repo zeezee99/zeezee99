@@ -1,5 +1,5 @@
 <p></p>
-<img width="256" height="244" alt="1000064791" src="https://github.com/user-attachments/assets/a9014a7c-903e-4617-80ae-0129520a51d3" />
+<p align="center"><img width="256" height="244" alt="1000064791" src="https://github.com/user-attachments/assets/a9014a7c-903e-4617-80ae-0129520a51d3" /></p>
 
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p align="center">
