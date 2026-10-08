@@ -9,7 +9,7 @@
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p></p>
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
-<sup></sup><i>@90% offtab/afk, do w2i, I love interacting~ | en/中文/bery lil tagalog
+<sup><i>@90% offtab/afk, do w2i, I love interacting~ | en/中文/bery lil tagalog
 <p></p>ㅤㅤadult, 20+ | -16 dni (　´⊇｀)</p>
 <p align="right"> svsss, mdzs, 2ha, tgcf, musicals, hsr, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</sup></p></i>
 <p></p>
