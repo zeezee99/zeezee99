@@ -1,6 +1,5 @@
 <p></p>
-<p align="center"><img width="256" height="244" alt="1000064791" src="https://github.com/user-attachments/assets/a9014a7c-903e-4617-80ae-0129520a51d3" /></p>
-
+<img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" />
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
@@ -14,6 +13,6 @@
 <p></p>ㅤㅤadult, 20+ | -16 dni (　´⊇｀)</p>
 <p align="right"> svsss, mdzs, 2ha, tgcf, musicals, hsr, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</p></i>
 <p></p>
-<p align="center"><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /></p>
+<p align="center"><img width="256" height="244" alt="1000064791" src="https://github.com/user-attachments/assets/a9014a7c-903e-4617-80ae-0129520a51d3" /></p>
 
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
