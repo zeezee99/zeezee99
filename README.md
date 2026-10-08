@@ -9,9 +9,9 @@
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p></p>
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
-<sub><i>@ 90% offtab/afk, do w2i, I love interacting~ | en/中文/bery lil tagalog
+「 @ 90% offtab/afk, do w2i, I love interacting~ | en/中文/bery lil tagalog 」
 <p></p>ㅤㅤ<p align="center">🌻</p> 
-  <p></p> ㅤㅤㅤㅤadult, 20+ | -16 dni (　´⊇｀)</p>
+  <p></p><i> ㅤㅤㅤㅤadult, 20+ | -16 dni (　´⊇｀)</p>
 <p></p> <p align="center">✦ 。ㅤI block freely.</p>
   <p></p> 〔 🥨 p.s everyone who crowned me, I'm so grateful ！ & if I couldn't reply, it's still so appreciated !！〕</sub></i>
 <p></p>
