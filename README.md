@@ -1,5 +1,6 @@
 <p></p>
-<img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" />
+<p align="center"><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /></p>
+<p></p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
