@@ -13,7 +13,6 @@
 <i>- @ 90% always afk or offtab! I do love interacting tho, whisper me~ | en/中文/bery lil tagalog
 <p></p>- adult first and foremost, 20+, -16 dni (　´⊇｀)</p>
 <p>- svsss, mdzs, 2ha, tgcf, musicals, hsr, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</p></i>
-_____________________________________________________
 <p align="center"><img width="168" height="232" alt="1000064397" src="https://github.com/user-attachments/assets/382b546b-97fd-4a27-b081-b7a89838c63e" /></p>
 <p></p>
 moon shingun my bbg <3
