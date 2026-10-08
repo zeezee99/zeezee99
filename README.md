@@ -10,8 +10,8 @@
 <p></p>
 <p align="center">₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾</p>
 <sup><i>@90% offtab/afk, do w2i, I love interacting~ | en/中文/bery lil tagalog
-<p></p>ㅤㅤadult, 20+ | -16 dni (　´⊇｀)</p>
-<p align="right"> svsss, mdzs, 2ha, tgcf, musicals, hsr, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</sup></p></i>
+<p></p>ㅤㅤadult, 20+ | -16 dni (　´⊇｀)</sup></p>
+<p align="right"> svsss, mdzs, 2ha, tgcf, musicals, hsr, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~</p></i>
 <p></p>
 <p align="center"><img width="256" height="244" alt="1000064791" src="https://github.com/user-attachments/assets/a9014a7c-903e-4617-80ae-0129520a51d3" /></p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
