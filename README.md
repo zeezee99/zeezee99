@@ -17,5 +17,7 @@
 <p align="center"><img width="256" height="244" alt="1000064791" src="https://github.com/user-attachments/assets/a9014a7c-903e-4617-80ae-0129520a51d3" /></p>
   <p align="right"> 「 fandoms : 」<sub>svsss, mdzs, 2ha, tgcf, musicals, hsr, unsleep, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~ 🍂 </sub></p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
+  <img width="1181" height="1748" alt="1000060999" src="https://github.com/user-attachments/assets/aac7fe86-a3e3-4ef3-9380-cf43a3d8aaf6" />
 <p></p>
+  
 <p align="center"><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /><img width="96" height="93" alt="1000064793" src="https://github.com/user-attachments/assets/a0068ace-1ee8-401a-b34b-f62f41a2cb26" /></p>
