@@ -15,7 +15,7 @@
   <p></p> 〔 🥨 p.s everyone who crowned me, I'm so grateful ！ & if I couldn't reply, it's still so appreciated !！〕</sub></i>
 <p></p>
 <p align="center"><img width="256" height="244" alt="1000064791" src="https://github.com/user-attachments/assets/a9014a7c-903e-4617-80ae-0129520a51d3" /></p>
-  <p align="right"> 「 fandoms : 」<sub>svsss, mdzs, 2ha, tgcf, musicals, hsr, unsleep, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~ 🍂 </sub></p>
+  <p align="right"> 「 fandoms : 」<sub>svsss, mdzs, 2ha, tgcf, musicals, hsr, unsleep, lost in the cloud, link click, one room ta, no home, shutline, pearl boy, pearl boy: ignition, how dare you! (chenghe titong) and many more fandoms~ 🍂 </sub></p>
 <p align="center">  ─ ⊹ ⊱ ⊰ ⊹ ─</p>
   <img width="2048" height="2048" alt="1000067935" src="https://github.com/user-attachments/assets/acb87052-15e0-4380-88a0-0e8042b05e33" />
 <p align="center"><i><sub>scumcum is so delicious ♡ (art by me!)</sub></i></p>
